@@ -1,1 +1,4 @@
-Risk chops for love
+Risk
+LOVe
+AND
+WAR
